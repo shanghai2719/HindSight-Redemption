@@ -1,4 +1,4 @@
-# HindSight Redemption
+**# HindSight Redemption
 
 ## 公司簡介 (繁體中文 / Zh-TW)
 
@@ -39,3 +39,4 @@
 **HindSight Redemption**  
 洞察過去，救贖未來。  
 We observe what others overlook. We redeem what others abandon.
+**
