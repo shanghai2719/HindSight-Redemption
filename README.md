@@ -1,3 +1,5 @@
+## chuyện xàm hơi tục nha nhớ vina con tý
+
 ##### ***Mắt tao díu lại, đầu quay mòng mòng như vừa bị ai đó táng cho một phát trời giáng.***
 
 ##### ***“…ơ đm… đây là đâu vậy trời???”***
